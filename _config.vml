@@ -1,1 +1,7 @@
-
+theme: jeklly-theme-slate
+title: The homepage of Sára Árpási
+description: You can find here all my projects 
+plugin: 
+- jemoji 
+url:"https://saraarpasi.github.io/"
+markdown: kramdown
