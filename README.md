@@ -5,4 +5,4 @@ I am Sára Árpási, a current exchange student in Communication and Media at Ho
 ## Find me here
  [LinkedIn](https://www.linkedin.com/in/s%C3%A1ra-%C3%A1rp%C3%A1si-3b6783184/)
 ## CV
-## My [CV](/Sára Árpási_CV_24.pdf)
+## My [CV] (/Sára Árpási_CV_24.pdf)
