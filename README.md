@@ -16,7 +16,6 @@ My [CV](/Sara Arpasi_CV_24.pdf)
 ## Study abroad- Bonjour Paris! 
 
 ![449345663_993363552332436_244367328161712028_n](https://github.com/saraarpasi/saraarpasi.github.io/assets/172238710/d7d53b31-98b4-499a-b9d3-a1231d7be809)
-![449538553_379087924795852_4815380420059542191_n](https://github.com/saraarpasi/saraarpasi.github.io/assets/172238710/8ddde7b4-546b-4708-8287-c019d7d6a9ba)
 
 Bonjour! During my exciting exchange semester at EMLV - École de Management Léonard de Vinci, I delved into the dynamic world of Cultural and Creative Industries. Imagine studying Merchandising & Cultural Retail, Talent Management, Production Management, Event Management, Transmedia Storytelling, and even Video Gaming & E-Sports Management – it was a whirlwind of creativity and learning! From exploring iconic landmarks like the Louvre and TF1 during our field trips to experiencing the bustling ambiance of Printemps Haussmann department store, every moment enriched my understanding of cultural and creative industries
 
