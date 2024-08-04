@@ -1,4 +1,4 @@
-# saraarpasi.github.io
+
 Hi guys!
 I am Sára, a cultural bridge builder with an innovative mind, I foster understanding across borders
 by harnessing the power of dialogue. Only together can we build a better future, therefore my communication and teamwork skills
