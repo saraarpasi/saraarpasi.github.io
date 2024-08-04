@@ -1,5 +1,6 @@
 
-Hi guys!!!
+Hi guys!
+
 I am Sára, a cultural bridge builder with an innovative mind, I foster understanding across borders
 by harnessing the power of dialogue. Only together can we build a better future, therefore my communication and teamwork skills
 
@@ -26,3 +27,23 @@ One of the absolute highlights was teaming up with my fellow students to organiz
 Beyond the classroom and our exhibition prowess, I also honed my French skills and explored the enchanting Loire Valley, soaking in the charm of its majestic castles. France's spirited culture and the joie de vivre of its people made my adventure truly memorable, leaving me eager to "revoir" Paris soon!
 
 ![1703226614107 (1)](https://github.com/saraarpasi/saraarpasi.github.io/assets/172238710/f90c8fe5-2a01-4633-bad1-d95783ef4274)
+
+
+## Study abroad- こんにちは Sapporo! 
+
+
+During my exciting exchange semester at Hokkaido University in Sapporo,  I delved into many of fascinating subjects that illuminated the rich tapestry of Japanese culture and history. Courses like Art Tourism, Tourist Attractions, Tourism and Public History, and Modern Japanese Studies filled my days with endless discoveries and intellectual adventures.
+
+![453121503_2810950392390368_7950770540277942278_n](https://github.com/user-attachments/assets/8a181c9b-c4dc-477e-89d2-6b6c28819cf3)
+
+Imagine exploring the nuanced interplay between art and tourism, dissecting what makes a tourist site irresistibly captivating, or debating the ethical responsibilities of presenting history to the public. Each class was a deep dive into Japan's vibrant heritage and contemporary society, enhancing my appreciation for this incredible country.
+
+![453664531_3870080276614749_6619624993783933906_n](https://github.com/user-attachments/assets/1385e6dc-4e6f-45c6-bd49-ff78866a4215)
+
+But the true magic happened beyond the classroom walls. Our field trips were nothing short of transformative, turning theoretical knowledge into vivid, tangible experiences. One such adventure was my immersion into the onsen culture. Picture this: soaking in a serene hot spring, enveloped by nature, while learning about the centuries-old traditions that make onsens a cornerstone of Japanese life. It was not just about relaxation; it was a cultural revelation.
+
+Another unforgettable journey took me to the bustling local fish markets. The air was thick with the smell of the sea and the energetic banter of vendors. Navigating through the vibrant stalls, I sampled an array of fresh seafood, each bite a testament to the market's importance in the local community. It was a feast for the senses and a profound glimpse into daily Japanese life.
+
+![453584403_874782994499211_2050456846182423335_n](https://github.com/user-attachments/assets/1579d9ec-076c-441a-9a9e-cc8bcbb258d8)
+
+My exploration of Japan's storied past was equally enthralling. Visits to ancient temples and modern museums allowed me to traverse through the annals of history. From the serene beauty of traditional shrines to the interactive exhibits of contemporary museums, each visit deepened my understanding of the events and figures that have shaped Japan.
